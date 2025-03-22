@@ -1,0 +1,1 @@
+# Taller_2_corte_1_estadistica_matematica
